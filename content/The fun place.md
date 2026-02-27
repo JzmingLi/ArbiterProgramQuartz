@@ -1,1 +1,0 @@
-This is where gay people go cus they're chill[[index]][[hehe]][[Bububbbuuu!!!!]]

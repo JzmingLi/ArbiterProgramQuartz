@@ -1,9 +1,3 @@
 ---
-title: Welcome to Hell
+title: Arbiter Program
 ---
-
-Yay!!!!!!!!
-
-[[hehe]]
-
-[[Bububbbuuu!!!!]]

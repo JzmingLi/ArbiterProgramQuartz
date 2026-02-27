@@ -1,1 +1,0 @@
-owhwhw[[index]][[Bububbbuuu!!!!]]
